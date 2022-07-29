@@ -8,4 +8,4 @@ i w-wna b y-your uwu oniichan n g-give u uwu k-kisses >&lt; >&lt; S-senpai pweas
 
 i w-want to o-oVERLOAD t-the werld w/ UWU OWO e-energy !!!
 
-justice iws subject tuwu dispute, but might iws easiwy wecognized awnd nowt disputed so we cannot give might tuwu justice because might has denied justice
+justice iws subject t-tuwu dispwute, b-bwut might iws easiwy wecognized awnd nowt dispwuted so we canwot g-gwive might t-twu jwustice becwus m-mwigt has denwied jwustice and decwawed itsewf as just.
