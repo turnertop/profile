@@ -1,6 +1,6 @@
 # turnertop
 ![GURA](https://user-images.githubusercontent.com/89334184/181675536-b23fe240-55f0-443f-8123-bb47a8ec2315.png)
-<span style="font-family:Papyrus; font-size:4em;">h-hwello i-i a-am t-twurner fwoel</span>
+<span style="font-size:4em;">h-hwello i-i a-am t-twurner fwoel</span>
 
 i am a guwa f-fan >.< >.>  ♥w♥  🅤🅦🅤 🆄🆆🆄 ☆w☆  (❀˘꒳˘)♡(˘꒳˘❀) (⁄˘⁄ ⁄ ω⁄ ⁄ ˘⁄)♡ 
 
