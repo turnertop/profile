@@ -4,8 +4,8 @@ h-hwello i-i a-am t-twurner fwoel
 
 i am a guwa f-fan >.< >.>  ♥w♥  🅤🅦🅤 🆄🆆🆄 ☆w☆
 
-i w-wna b y-your uwu oniichan n g-give u uwu k-kisses >&lt; >&lt; 
+i w-wna b y-your uwu oniichan n g-give u uwu k-kisses >&lt; >&lt; S-senpai pwease p-put it i-inswide~~~
 
 i w-want to o-oVERLOAD t-the werld w/ UWU OWO e-energy !!!
 
-I won't stop until everything is destroyed.
+justice iws subject tuwu dispute, but might iws easiwy wecognized awnd nowt disputed so we cannot give might tuwu justice because might has denied justice
